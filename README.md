@@ -1,4 +1,4 @@
-Hi! My name is Christian Torrisi and I am currently an Associuate Software Engineer working for Mantel Group under their brand DigIO.
+Hi! My name is Christian Torrisi and I am currently an Associate Software Engineer working for Mantel Group under the DigIO brand.
 
 
 
